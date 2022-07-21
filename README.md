@@ -9,3 +9,5 @@ Added Yatin Sharma
 
 
 Added Lenovo
+
+added Lenovo 2
